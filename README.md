@@ -10,4 +10,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos projetos de
 
 00001142828281sp@al.educacao.sp.gov.br
 
-https://media1.tenor.com/m/7jKc6tYUQpEAAAAC/renato-cariani-cariani.gif
+![](https://media1.tenor.com/m/7jKc6tYUQpEAAAAC/renato-cariani-cariani.gif)
